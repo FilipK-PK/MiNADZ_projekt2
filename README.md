@@ -1,0 +1,1 @@
+# MiNADZ_projekt2
